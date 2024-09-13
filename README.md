@@ -1,6 +1,6 @@
 Política de Privacidade
 
-Esta Política de Privacidade descreve como suas informações são coletadas, usadas e compartilhadas quando você utiliza nosso aplicativo ("App"). Ao usar o App, você concorda com a coleta e uso das informações conforme descrito nesta política.
+Esta Política de Privacidade descreve como suas informações são coletadas, usadas e compartilhadas quando você utiliza nosso aplicativo (Adivinha Só). Ao usar o App, você concorda com a coleta e uso das informações conforme descrito nesta política.
 
 1. Informações que Coletamos
 
